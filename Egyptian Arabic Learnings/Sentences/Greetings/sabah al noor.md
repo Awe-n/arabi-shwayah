@@ -1,0 +1,1 @@
+[[sabah]] [[al]]-[[noor]] = Good morning (response)

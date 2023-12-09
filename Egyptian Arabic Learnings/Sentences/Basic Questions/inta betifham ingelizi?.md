@@ -1,0 +1,1 @@
+[[inta]] [[betifham]] [[ingelizi]]? = Do you understand english?

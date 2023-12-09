@@ -1,0 +1,1 @@
+[[la']] [[yeh]] [[oustaz]] = No sir

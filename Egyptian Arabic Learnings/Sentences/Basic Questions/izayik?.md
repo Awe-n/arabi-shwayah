@@ -1,0 +1,1 @@
+[[izayik]]? = How are you? (f)

@@ -1,0 +1,1 @@
+[[inta]] [[amriki]]? = Are you american?

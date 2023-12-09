@@ -1,0 +1,1 @@
+[[sabah]] [[al]]-[[khair]] = Good morning (addressing)

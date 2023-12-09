@@ -1,0 +1,1 @@
+[[ana]] [[bafham]] [[arabi]] [[shwayah]] = I understand Arabic a little

@@ -1,0 +1,1 @@
+[[aywah]] [[yeh]] [[anisah]] = Yes miss

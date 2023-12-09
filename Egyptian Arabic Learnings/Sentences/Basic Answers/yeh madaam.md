@@ -1,0 +1,1 @@
+[[yeh]] [[madaam]] = ma'am

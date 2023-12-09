@@ -1,0 +1,1 @@
+[[ana]] [[kwayesah]] = I'm well (f)
